@@ -1,4 +1,4 @@
-# kumar-
+Investigating the Effects of Different Light Spectrums on Plant Growth
 xyz 
 
 
